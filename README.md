@@ -1,1 +1,1 @@
-# yourgithubusername.github.io
+nyomkereses indul,utvonal-kizaras
